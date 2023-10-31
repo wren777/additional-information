@@ -1,2 +1,3 @@
 # additional-information
-[Ссылка на папку с файлами](https://drive.google.com/drive/folders/1HPNp_AhbLGsqKkx1VIt68xJk-v2dalC-?usp=sharing)
+[Диплом Яндекс Практикум](https://drive.google.com/file/d/1DnFrVq8yGMssGVj52TFzR9_B9mtY-RCo/view?usp=sharing) 
+
